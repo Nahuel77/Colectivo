@@ -5,4 +5,6 @@ Me compré un colectivo
 ![alt text](2.png)
 ![alt text](giphy.gif)
 ![alt text](demand.png)
+![alt text](demand.png)
+![alt text](elefante.png)
 

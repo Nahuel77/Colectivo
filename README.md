@@ -15,3 +15,5 @@ Uy!Uy!Uy!
 
 ![alt text](vpsi.png)
 ![alt text](bb.jpeg)
+
+podes tener al mejor hacker, pero no subestimes la red informativa de las viejas chismosas. Voy a ir cazando chismes y eliminando problemas

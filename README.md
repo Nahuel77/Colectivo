@@ -18,4 +18,5 @@ Uy!Uy!Uy!
 
 podes tener al mejor hacker, pero no subestimes la red informativa de las viejas chismosas. Voy a ir cazando chismes y eliminando problemas
 
-![alt text](ChatGPT Image 5 sept 2026, 17_09_19.png)
+![alt text](17_09_19.png)
+![alt text](18_41_46.png)

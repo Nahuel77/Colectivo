@@ -23,4 +23,4 @@ podes tener al mejor hacker, pero no subestimes la red informativa de las viejas
 ![alt text](mel.png)
 
 "No hace nada, solamente toca el piano, hace ejercicio y como no dejamos de romperle las pelotas, va a hacer planes"
-Si te avise hace años que me iba a defender.
+Si te avise hace años que me iba a defender. O te filtraban los mensajes?
